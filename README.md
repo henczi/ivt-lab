@@ -1,2 +1,2 @@
 # ivt-lab
-vál---tozás
+vál---tozá--s
